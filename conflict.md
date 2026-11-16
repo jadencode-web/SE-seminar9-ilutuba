@@ -1,2 +1,2 @@
-Eile oli päris jahe.
-Tuleb poest piima osta.
+Eile oli päris soe.
+Enam pole vaja poest piima osta.
